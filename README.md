@@ -36,7 +36,7 @@ I'm Harsh Shah. I am a post-graduate computer science student at [IIIT Bangalore
 - 🧐 Learning about computer science.  
   
 
-- 📙 Check out my [resume](https://drive.google.com/file/d/1koZNgfAoDUqkT5d5jBccF-mk8m5Nqvhe/view?usp=sharing).  
+- 📙 Check out my [resume](https://drive.google.com/file/d/12YrOsS2oT9kG7jt_08qki2PJynat6jhc/view?usp=sharing).  
   
 
 - 🎉 Fun fact: shoes 👟 and music 🎶 interest me.  
